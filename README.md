@@ -1,8 +1,5 @@
 
-<video src="https://github.com/user-attachments/assets/55285f5d-58f4-4eb1-8a71-3d2162a12785" width="600" controls></video>
-
-
-
+<img width="736" height="414" alt="19-Brilliant-Elegant-Wedding-Invitations" src="https://github.com/user-attachments/assets/2ad8d7c0-e5cb-4e58-8aea-176bcf0134ff" />
 
 
 
